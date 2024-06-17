@@ -1,0 +1,1 @@
+# Bolbekov_platformasi
